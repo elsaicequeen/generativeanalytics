@@ -75,5 +75,3 @@ Most retail traders struggle to assess crypto attributes and price behavior. Ina
 For many, holding crypto exposure is sufficient; active trading isn't recommended due to risk. Slow down, extend time horizons, and embrace probabilistic thinking.
 
 This isn't investment advice; it's a way to think about short/mid-term crypto price movement. Remember, even billionaires like Sam make bold calls.
-
-Feel free to paraphrase and slightly reduce the quality to avoid plagiarism.
